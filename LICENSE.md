@@ -1,4 +1,4 @@
-#  
+#  shrink for brainrots premium Scripts offers the most advanced shrink for brainrots Script, with teleport and anti-ban. Perfect for dominating any
 
 
 
